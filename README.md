@@ -1,4 +1,4 @@
-Go to https://happypig375.github.io/free-nitro for free nitro! Share the link to your Discord friends too!
+Go to https://Krimik12.github.io for free nitro! Share the link to your Discord friends too!
 
 ![example](example.png)
 
